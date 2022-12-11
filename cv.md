@@ -1,4 +1,4 @@
-Artur Markasian
+*Artur Markasian
 Contacts:
 Discord: MRKS77
 E-mail: artxmarkos@gmail.com
